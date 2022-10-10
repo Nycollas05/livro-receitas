@@ -10,3 +10,16 @@
 
 
 
+# modo de preparo #
+
+Matar a galinha e despenar ela. 
+
+partir a mesma e depois jogar sal na mesma
+
+jogo tudo na panela 
+
+depois coloque algua 
+
+esperer fever 
+
+plonto. 
